@@ -1,1 +1,1 @@
-# USTC
+# USTC Logo
